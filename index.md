@@ -1,4 +1,4 @@
-## Cura e controllo al confine: esperiene di medici all'interno dell'hotspot
+## Cura e controllo al confine: esperienze di medici all'interno dell'hotspot
 
 di Jacopo Anderlini (Università degli Studi di Genova)
 
